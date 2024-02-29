@@ -1,0 +1,1 @@
+# jurnal---02---ISD_Ahmad
